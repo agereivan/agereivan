@@ -11,7 +11,7 @@
 
 <div align="center">
 
-  ⩄ㅤ[ma](https://github.com/toemuncher3000)inㅤ★ㅤ[ata](https://skyrus.atabook.org/)bookㅤㅤ︶꒦
+  ⩄ㅤ[ma](https://github.com/toemuncher3000)inㅤ★ㅤ[ata](https://skyrus.atabook.org/)bookㅤ★ㅤ[prns](https://pronouns.cc/@ji9stars)ㅤ︶꒦
 
 
 <p align="center">
