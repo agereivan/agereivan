@@ -3,15 +3,15 @@
   <img width="700" height="700" src="https://github.com/user-attachments/assets/3df1dd12-775d-4195-9e7f-1cdda47e0023">
 </p>
 
-<p align="center">
-  ⟢ㅤㅤ𝐢 want things to be 𝐛eautiful. 
-</p>
+<div align="center">
 
-<p align="center">
+  ⟢ㅤㅤ𝐢 want things to be [𝐛](https://www.youtube.com/watch?v=gUPGLYYT4bc)eautiful.ㅤㅤꔫ
 
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://skyrus.atabook.org/)book
 
-</p>
+
+<div align="center">
+
+  ⩄ㅤ[ma](https://github.com/toemuncher3000)inㅤ★ㅤ[ata](https://skyrus.atabook.org/)bookㅤㅤ︶꒦
 
 
 <p align="center">
